@@ -1,0 +1,3 @@
+# Drugi_rep
+...
+Smola je sol bor je drvo
