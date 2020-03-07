@@ -1,3 +1,3 @@
 # Drugi_rep
 ...
-Smola je sol bor je drvo
+Bor je drvo smola je sol a ja sam aerosol
