@@ -1,3 +1,3 @@
 # Drugi_rep
 ...
-Smola je emulzija bor je drvo
+Smola je sol bor je drvo
